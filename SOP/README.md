@@ -11,7 +11,7 @@ webmotion spi
 <br/>  
 <br/>  
 <br/>
-If you have any question, pls welcome   
+If you have any question welcome to ask
 fb.com/dzhezus  
 vk.com/dzhezus  
 t.me/dzhezus  
